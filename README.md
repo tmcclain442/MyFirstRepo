@@ -1,1 +1,1 @@
-Hopes for the course: I get better at the computers and stuff, be able to understand how to build a website, a repositoire, and use them to get to where I wanna go. Let the nerd continue to blossom, grow, develop, and make me monies.
+Hopes for the course: I get better at the computers and stuff, be able to understand how to build a website, a repo, and use them to get to where I wanna go. Let the nerd continue to blossom, grow, develop, and make me monies.
